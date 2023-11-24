@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @joshuavanhie
 - 👀 I’m interested in research on food, health and 'alternative' medicine
 - 🌱 I’m currently studying psychology in leuven. I'm in my 3rd year
-- I love reading, doing sports, gaming and making music.
+-  ✨I love reading, doing sports, gaming and making music.
 
 
 <!---
